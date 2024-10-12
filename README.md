@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on early stage crypto, Defi, NFTs & Web3 projects
 - 📫 How to reach me { me telegram profile} https://t.me/Senator_Sammy
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: Interested in supporting early stage projects too reach it highest pontentail.
+- ⚡ Fun fact: Interested in supporting early stage projects too reach it highest potentail in the crypto space
 
 <!---
 SammySSSS5/SammySSSS5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
